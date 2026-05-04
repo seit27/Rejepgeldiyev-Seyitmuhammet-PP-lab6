@@ -1,0 +1,1 @@
+# Rejepgeldiyev-Seyitmuhammet-PP-lab6
